@@ -1,1 +1,1 @@
-# 4-Day-SQL-Course-Certificate-
+# 4-Day-SQL-Course-Certificate-Newton School
